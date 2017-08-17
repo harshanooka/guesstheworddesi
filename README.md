@@ -1,1 +1,1 @@
-Visit indicappstudios.com for more information
+Visit http://indicappstudios.com for more information
